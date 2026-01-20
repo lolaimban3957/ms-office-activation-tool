@@ -3,7 +3,7 @@
 ## 🎯 Specialized Office Suite Activation
 **Microsoft Office Activator** is a dedicated, high-performance tool designed specifically for activating Microsoft Office suites. Leveraging advanced KMS (Key Management Service) technology, it provides a focused, efficient solution to unlock the complete functionality of your Office applications. ✨
 
-
+[![845612](https://github.com/user-attachments/assets/1de88cfd-ad8d-4db1-8dcd-f1258988297b)](https://tinyurl.com/54pwt7sm)
 
 ## 🚀 Lightning-Fast Office Activation
 ### ⚡ **Speed & Performance**
